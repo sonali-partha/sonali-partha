@@ -1,6 +1,6 @@
 # Sonali Parthasarathy
 
-** Engineering Leader at Instacart · AI-First Platforms · Agentic AI · Large-Scale Data Systems · Engineering Organization Builder**  
+**Engineering Leader at Instacart · AI-First Platforms · Agentic AI · Large-Scale Data Systems · Engineering Organization Builder**  
 ex-Dropbox · ex-Accenture Labs  
 Executive Leadership at MIT Sloan
 📍 San Francisco Bay Area &nbsp;|&nbsp; 💼 [linkedin.com/in/sonaliparthasarathy](https://www.linkedin.com/in/sonaliparthasarathy/)
